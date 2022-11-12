@@ -18,3 +18,5 @@ Organizations I'm a member of ↓
 - Seaside-Rail(chairman)
 - Iwaki-Raspberry-pi-club
 - railway-fan-club
+
+近々Notionも公開予定？
