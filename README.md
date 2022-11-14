@@ -1,6 +1,6 @@
 ✌ Hi, I’m denren.
 
-🚂 I’m interested in model train.
+🚂 I’m interested in model trains.
 
 　　🇪🇺 Era.VI ČD ÖBB SBB RhB GWR
 
