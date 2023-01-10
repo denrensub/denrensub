@@ -2,9 +2,9 @@
 
 🚂 I’m interested in model trains.
 
-　　🇪🇺 Era.VI ČD ÖBB SBB RhB GWR
+　　🇪🇺 Era.VI ČD ÖBB SBB RhB GWR SNCF Lyria
 
-　　🇯🇵🗾 Era.II~VI 常磐線・磐越東線(JNR/JR East  Jōban Line&Yūyū Abukuma Line)
+　　🇯🇵🗾 Era.II~VI 常磐線・磐越東線(JNR/JR East  Jōban Line & Yūyū Abukuma Line)
 
 　　🇺🇸 PRR&UP Steam Locomotive
 
