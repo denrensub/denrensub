@@ -20,11 +20,17 @@ Organizations I'm a member of ↓
 - railway-fan-club
 
 Notion
+
 自宅配置車両一覧(工事中)
+
 https://quick-coil-96e.notion.site/e6be94d88cf74cc291bfbf4e96468648
+
 実家配置車両一覧
+
 +++準備中+++
+
 TMCIT-SeasideRail会長マニュアル(工事中)
+
 https://quick-coil-96e.notion.site/TMCIT-CP-2022-ver-12cc89e4cb624c1fa9a7ab0273d86e02
 
 ![DSC01137_edit_40699912857851](https://user-images.githubusercontent.com/108180613/212911350-ff29fdbe-b927-4c92-8749-fa9fba56e1cb.jpg)
