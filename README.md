@@ -19,6 +19,10 @@ Organizations I'm a member of ↓
 - Iwaki-Raspberry-pi-club
 - railway-fan-club
 
+
+なんと、あれを見たいと、んじゃついったかディスコでDM凸してくれ。多分通す。
+
+
 Notion
 
 自宅配置車両一覧(工事中)
