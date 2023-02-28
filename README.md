@@ -33,6 +33,10 @@ https://quick-coil-96e.notion.site/e6be94d88cf74cc291bfbf4e96468648
 
 +++準備中+++
 
+おでかけ記録
+
+https://quick-coil-96e.notion.site/367b7870bafa4a3dab445623ae393469
+
 TMCIT-SeasideRail会長マニュアル(工事中)
 
 https://quick-coil-96e.notion.site/TMCIT-CP-2022-ver-12cc89e4cb624c1fa9a7ab0273d86e02
