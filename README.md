@@ -15,7 +15,7 @@
 🏫 TMCIT_EE #kosen20s
 
 Organizations I'm a member of ↓
-- Seaside-Rail(chairman)
+- Seaside-Rail(former chairman)
 - Iwaki-Raspberry-pi-club
 - railway-fan-club
 
