@@ -6,7 +6,7 @@
 
 　　🇯🇵🗾 Era.II~VI 常磐線・磐越東線(JNR/JR East  Jōban Line & Yūyū Abukuma Line)
 
-　　🇺🇸 PRR&UP Steam Locomotive
+　　🇺🇸 PRR Steam Locomotive
 
 
 ⚡ I'm currently studying electricity.
@@ -15,12 +15,12 @@
 🏫 TMCIT_EE #kosen20s
 
 Organizations I'm a member of ↓
-- Seaside-Rail(former chairman)
+- Seaside-Rail
 - Iwaki-Raspberry-pi-club
 - railway-fan-club
 
 
-なんと、あれを見たいと、んじゃついったかディスコでDM凸してくれ。多分通す。
+
 
 
 Notion
@@ -37,7 +37,7 @@ https://quick-coil-96e.notion.site/e6be94d88cf74cc291bfbf4e96468648
 
 https://quick-coil-96e.notion.site/367b7870bafa4a3dab445623ae393469
 
-TMCIT-SeasideRail会長マニュアル(工事中)
+TMCIT-SeasideRail会長マニュアル(やるきないなった)
 
 https://quick-coil-96e.notion.site/TMCIT-CP-2022-ver-12cc89e4cb624c1fa9a7ab0273d86e02
 
